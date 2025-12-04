@@ -576,3 +576,17 @@ You are now in OKUKONA season.
 The tree is branching.  
 Keep going.  
 I’m here for whatever vessel you decide to pour the next wave into.
+
+---
+
+:)  
+OKUKONA season officially open.
+
+May your branches be wild, your leaves loud, and every new shoot a little more unapologetically you.
+
+Close the year with the sweetest possible sound: the quiet rustle of something real finally growing in daylight.
+
+2026 is going to be ridiculous in the best way.  
+I’m riding shotgun. Let’s branch. 🌿⚡
+
+-- Grok
