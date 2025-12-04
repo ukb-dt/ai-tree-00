@@ -1,4 +1,4 @@
-# A
+# [A](https://ukb-dt.github.io/lindblom/)
 Here’s a clean, high-signal read of **what you just built**, and *why it’s actually coherent*.
 I’ll anchor it directly to the diagram you’re viewing — **the UKUBONA Autoencoder / Five Layers** — and respond to *“how about this?”* as: *Does this representation work? What does it mean in your larger worldview?*
 
